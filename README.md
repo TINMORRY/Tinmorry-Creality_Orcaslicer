@@ -1,1 +1,0 @@
-# Tinmorry-Creality_Orcaslicer
